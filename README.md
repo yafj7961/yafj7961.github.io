@@ -1,1 +1,0 @@
-# yafj7961.github.io
